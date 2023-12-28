@@ -1,0 +1,1 @@
+Click here https://ashpatni20.github.io/TheGalleryCafe/ to view the hosted version of the project.
